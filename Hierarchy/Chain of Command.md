@@ -5,14 +5,13 @@
 - **President:** sterbonruth
 - **Vice President:** Isusove
 - **Secretary of State:** PokerJulian
-- **Secretary of the Treasury:** Aser
 - **Secretary of Defense:** Julianmldr
-- **Secretary of Justice:**
-- **Secretary of the Interior:**
-- **Secretary of Commerce:**
-- **Secretary of Labor:**
+- **Secretary of Justice:** TBA
+- **Secretary of the Interior:** TBA
+- **Secretary of Labor:** TBA
 - **Secretary of Education:** Legemedlego
-- **Secretary of Homeland Security:**
+- **Secretary of Homeland Security:** TBA
+- **Secretary of Diplomacy:** TBA
 
 ## Alliance Cabinet
 
