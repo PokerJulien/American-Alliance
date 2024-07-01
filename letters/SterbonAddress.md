@@ -1,0 +1,11 @@
+Isosuve and I strongly encourage open communication and collaboration on changes. While we don't necessarily need to veto every decision, it's crucial to discuss significant changes related to roles, announcements, and members.
+
+For instance, whenever I plan to make an announcement, I first discuss it in the World Builders Discord. I seek feedback from trusted members to ensure the message is clear and well-received. Additionally, I don't assign ranks to individuals simply because they request them. Instead, I conduct proper interviews and tests, and I seek opinions about the person's character from others.
+
+We've been putting a lot of effort into running this group effectively. To be honest, you haven't been as involved in understanding many aspects of it. While we appreciate your willingness to make changes, making decisions without properly addressing existing ones can create instability. We are much more active and eager to get this group running. I spend a lot of time working on the game, often 9-10 hours a day trying to get things to work.
+
+Isosuve wants you to improve on several areas. Firstly, background checking when hiring is crucial to ensure that new members are a good fit for the group. Proper background checks help maintain the group's integrity and prevent potential issues. Secondly, active communication is essential for collaboration, so replying more frequently helps keep everyone on the same page and fosters a more cohesive environment. Additionally, listening to the lower high ranks' advice is important because they often have valuable insights and feedback that can provide a broader perspective and improve decision-making.
+
+Furthermore, being active with your own community builds trust and rapport. Engaging with the community shows that you are invested in the group's success and value the members' contributions. Finally, making significant changes without informing us can create instability and confusion. Coordination is key to ensuring that changes are implemented smoothly and effectively.
+
+To streamline the hiring process and ensure we get the best candidates, we should consider having staff applications. This will allow us to thoroughly evaluate potential staff members and ensure they meet our standards before joining the team.
